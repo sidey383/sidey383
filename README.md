@@ -1,5 +1,5 @@
 ### About me
-- 19 y.o.
+- 20 y.o.
 - NSU student
 
 ### Links
